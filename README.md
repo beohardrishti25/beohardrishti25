@@ -1,4 +1,5 @@
 ### Hi there 👋
+Self-motivated and hardworking fresher seeking for an opportunity to work in a challenging environment to prove my skills and utilize my knowledge & intelligence in the growth of the organization. 
 
 <!--
 **beohardrishti25/beohardrishti25** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
